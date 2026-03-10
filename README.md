@@ -1,7 +1,7 @@
-# 💫 Hi 👋, I'm Kunal Rathore
+#  Hi! , I'm Kunal Rathore
 **A passionate Engineer  ||  Student  ||  Tech Enthusiast**
 
-Email Me 👉 ✉️ **kunalrathore753214@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **kunalrathore753214@gmail.com** For Collaboration/Project or Anything Else. 
 
 
 ## 🌐 Socials:
